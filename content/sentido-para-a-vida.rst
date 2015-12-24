@@ -11,7 +11,7 @@ Desde o dia `17 de Junho  <http://diogoleal.com/blog/?p=293>`__\  sou pai e tant
 acordava com um péssimo humor, hoje pode me chamar a hora que for,
 levanto sem reclamar e com uma disposição incrível.
 
-"**Bebê é tudo igual"**  -> Conseguia diferenciar apenas se o bebê era
+**Bebê é tudo igual** -> Conseguia diferenciar apenas se o bebê era
 cabeludo ou a cor da pele ou olhos, o conjunto da obra pra mim era tudo
 igual, desde o dia 17/06 consigo ver o quanto a minha filha é linda!
 
@@ -28,7 +28,7 @@ reclamar, as vezes consigo ficar um longo tempo com a Alice no colo
 passeando pela casa sem reclamar, pelo contrário, sinto falta quando ela
 sai do meu colo.
 
-**Interrupções**  ->  Esse sempre foi o meu maior problema, nunca me
+**Interrupções** ->  Esse sempre foi o meu maior problema, nunca me
 adaptei muito bem a ter que ficar sendo interrompido, hoje consigo fazer
 bem isso, claro que não é algo que mudou da noite para o dia, mas
 consigo parar de escrever talvez um código ou ler um texto e voltar com
